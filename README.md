@@ -1,2 +1,1 @@
 # kitchenette
-# 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
